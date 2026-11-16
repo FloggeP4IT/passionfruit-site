@@ -166,7 +166,7 @@ Don't want to start on your own? PASSION4IT, the team behind passionfruit, guide
 
 You end up with your bilingual website and an AI-assisted copy concept, and your team maintains it from there.
 
-Everything on one page to pass along: [flyer as PDF](/downloads/passionfruit-flyer.pdf) (one page, in German).
+To pass along, the offer is available on one page as a [flyer (PDF, in German)](/downloads/passionfruit-flyer.pdf).
 
 [Book an intro call with PASSION4IT](https://passion4it.de/en/booking/?utm_source=passionfruit.passion4it.de&utm_medium=referral&utm_campaign=passionfruit-anleitung)
 
