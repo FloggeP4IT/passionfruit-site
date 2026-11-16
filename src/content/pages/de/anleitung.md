@@ -166,6 +166,8 @@ Du willst nicht allein starten? PASSION4IT, das Team hinter passionfruit, beglei
 
 Am Ende steht deine zweisprachige Website mit KI-gestütztem Textkonzept, und dein Team pflegt sie selbst weiter.
 
+Alles auf einer Seite zum Weitergeben: [Flyer als PDF](/downloads/passionfruit-flyer.pdf) (eine Seite).
+
 [Erstgespräch mit PASSION4IT buchen](https://passion4it.de/booking/?utm_source=passionfruit.passion4it.de&utm_medium=referral&utm_campaign=passionfruit-anleitung)
 
 ## Wenn etwas hakt
